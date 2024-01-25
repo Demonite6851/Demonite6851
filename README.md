@@ -1,4 +1,4 @@
-## 🔥🔥🔥
+
 ![Static Badge](https://img.shields.io/badge/Spencer%20Langdon-Nora%20Frances%20Henderson-azure)<br><br>
 🎊 This is my profile. It has some cool things on it.<br> 🎊
 🏫 I am 16 and am currently enrolled at Nora Frances Henderson Secondary School.<br> 🏫
